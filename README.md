@@ -1,0 +1,6 @@
+# lab10![2022-12-06](https://user-images.githubusercontent.com/71279553/205874532-629c0adf-172b-4c85-bc62-7c87a4fa475a.png)
+![2022-12-06 (6)](https://user-images.githubusercontent.com/71279553/205874556-66ba9fbc-78df-48a6-975c-a56d417ef91c.png)
+![2022-12-06 (4)](https://user-images.githubusercontent.com/71279553/205874561-c0654009-8577-4552-9016-40de8ae2f2c5.png)
+![2022-12-06 (5)](https://user-images.githubusercontent.com/71279553/205874562-7056db19-d05b-4fef-bef2-c52297f66bc3.png)
+![2022-12-06 (2)](https://user-images.githubusercontent.com/71279553/205874564-4ea4c95e-807a-40d5-a9d8-83d729b6efc9.png)
+![2022-12-06 (7)](https://user-images.githubusercontent.com/71279553/205874571-26ed10e1-b212-4e15-880d-a2dc7defecf4.png)
